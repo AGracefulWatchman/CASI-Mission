@@ -14,4 +14,6 @@ Mission Statement
 "... freedom of men under government is to have a standing rule to live by, common to every one of that society, and made by the legislative power erected in it. A liberty to follow my own will in all things where that rule prescribes not, not to be subject to the inconstant, uncertain, unknown, arbitrary will of another man, ..."
 — John Locke, Second Treatise, Ch. 4 §21.
 
+If you would like to apply, click here: https://agracefulwatchman.github.io/CASI/
+
    
